@@ -10,3 +10,5 @@
 8. [Nordstrom Black Quarter Zip](https://shop.nordstrom.com/s/nordstrom-mens-shop-quarter-zip-wool-pullover/4587969?origin=topnav&cm_sp=Top%20Navigation-_-Men-_-Sweaters) 
 9. [Rag & Bone Black Jeans Size 30](https://shop.nordstrom.com/s/rag-bone-standard-issue-fit-1-skinny-fit-jeans/3944243?origin=topnav&cm_sp=Top%20Navigation-_-Men-_-Jeans&top=72&flexi=60131056_60197429&color=%27Black%27)
 10. [Naked & Famous Jeans Size 29](https://tateandyoko.com/products/super-skinny-guy-broken-elephant-6?variant=48073400655)
+
+All Tops Size Small, Priority Top - Bottom
